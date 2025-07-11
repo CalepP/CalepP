@@ -1,6 +1,10 @@
----> Su nombre completo o apodo: Patiño Lazarte Calep Giovanni
-  
----> Qué estudia: Ingenieria en Sistemas
-  
----> Una frase motivacional o divertida: Mi pasado no sera obstaculo a donde quiero llegar
- 
+🌟 Ficha Personal 🌟
+
+👤 Nombre / Apodo:
+Patiño Lazarte Calep Giovanni
+
+🎓 Qué estudia:
+Ingeniería en Sistemas
+
+💡 Frase motivacional:
+"Mi pasado no será obstáculo a donde quiero llegar." 🚀✨
